@@ -1,5 +1,5 @@
 Chapter One
-    It all began with a look.<br><br>
+    It all began with a look.
 
 Chapter Two
 Chapter Three
