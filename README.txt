@@ -1,14 +1,20 @@
-Chapter One
+Chapter One ~ First Vision
     It all began with a look.
 
 Chapter Two
+
 Chapter Three
-Chapter Four
-Chapter Five
+
+Chapter Four ~ Realize
+    Their eyes meet again.
+
+Chapter Five ~ Second Vision
+
+Chapter Six ~ DMT
     ‘This is a perfect society’ thought Paul. Everyone was in harmony with each other. There was a sense that no behaviour could possibly be judged. Complete freedom of expression. Pure bliss.
 
-Chapter Six
 Chapter Seven
     He usually let her lead the way.
 
 Chapter Eight
+    There was nothing to fear because there was nothing to lose.
