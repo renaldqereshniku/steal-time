@@ -1,3 +1,1 @@
-https://chapter-one-read.vercel.app/
-
-chapter-one-read.vercel.app
+https://chapter-one-read.vercel.app
